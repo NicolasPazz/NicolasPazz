@@ -1,5 +1,5 @@
 # 💫 About Me:
-I am an Information Systems Engineering studnet at Universidad Tecnológica Nacional (UTN FRBA)<br>
+I am an Information Systems Engineering student at Universidad Tecnológica Nacional (UTN FRBA)<br>
 
 
 ## 🌐 Socials:
